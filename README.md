@@ -1,1 +1,1 @@
-# mobo-techlinknd
+code_ifekel_co
